@@ -2,8 +2,7 @@
 
 Profesora: Rosa Victoria Villa Padilla
 
-Ayudantes: Zaide Esther Aguilar Valenzuela / 
-Jesús Fernando Altamirano Vázquez
+Ayudantes: Zaide Esther Aguilar Valenzuela / Jesús Fernando Altamirano Vázquez
            
 Ayudante Laboratorio: Arturo Lemus Pablo
 
